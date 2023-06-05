@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on webdev and sql...
 - 📫 How to reach me 
 - mail:-kumarmukund322@gmail.com
-- instagram :- mukund__03
+- instagram :- @mukund__03
 - linkdin:-
 https://www.linkedin.com/in/mukund-kumar-333140253
  ...
